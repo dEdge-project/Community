@@ -1,2 +1,2 @@
 # Community
-blocz community and ecosystem channels, discussion forums, and more
+blocz community ethos, channels, discussion forums, and more..
